@@ -1,4 +1,4 @@
-# Hello, Welcome to My Blog!
+# !
 
 I will be gone from home for quite some time, and I would love to be able to call each and every one of you on a regular schedule, but with the time difference and life, I don't think it will be possible. So... a blog!
 
@@ -12,11 +12,13 @@ Thailand for three months-- Growing up and living in the the PNW my whole life, 
 
 There will most likely be a few additional stops, and I will definitely need to leave Thailand at some point to get my visa exemption renewed, so maybe I'll stop by Vietnam, Cambodia, or Laos. Again, any recommendations are welcome. 
 
-Thank you for taking the time to keep up with me, let me know if you read this!
+Thank you for takChina
+12/9 
+On the plane, I've still got about 6 hours left to go. I've already taken a nap, watched Crazy Rich Asians, and tried to walk around the plane without running into every person along the way. It still hasn't quite hit me that when I land, I'll be in China, and I won't go back to Seattle until March. I'm going to miss so many people, events and memories while I'm gone, but I know that I'm going to have an incredible time and learn so many things the time to keep up with me, let me know if you read this!
 
-
+at I didn't even know I could learn. 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzE4NTY2Nzc1XX0=
+eyJoaXN0b3J5IjpbLTgzNTkxNzMzNCw3MTg1NjY3NzVdfQ==
 -->
