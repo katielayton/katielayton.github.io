@@ -15,6 +15,11 @@ There will most likely be a few additional stops, and I will definitely need to 
 Thank you for taking the time to keep up with me, let me know if you read this! 
 
 
+
+
+
+
+
 China
 
 12/9 
