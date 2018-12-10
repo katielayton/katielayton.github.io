@@ -4,7 +4,7 @@ I will be gone from home for quite some time, and I would love to be able to cal
 
 For those of you who I forgot to explain my trip to, or if you want a refresher here's what my current itinerary looks like:
 
-China for 10 days-- with Program on the Environment's Sustainability in the US and China trip. This program is what started my whole trip, so a huge shout out to the PoE and Kristi Straus for making this happen. I am so excited to learn more about sustainability practices in China, and if you want to learn more about sustainability in the US, I highly recommend taking ENVIR 239. I don't know exactly what I'll be doing in China, but we have a busy schedule of lectures and site visits! I'm also really looking forward to visiting the Great Wall of China and the Forbidden City, especially after learning about the Great Wall in my architecture history course this quarter!
+China for 10 days-- with Program on the Environment Sustainability in the US and China trip. This program is what started my whole trip, so a huge shout out to the PoE and Kristi Straus for making this happen. I am so excited to learn more about sustainability practices in China, and if you want to learn more about sustainability in the US, I highly recommend taking ENVIR 239. I don't know exactly what I'll be doing in China, but we have a busy schedule of lectures and site visits! I'm also really looking forward to visiting the Great Wall of China and the Forbidden City, especially after learning about the Great Wall in my architecture history course this quarter!
 
 Australia for two weeks-- This portion of the trip is not with a UW program, but I will be staying with someone that Fi met on her gap year, so I won't be entirely alone. I cannot wait to connect to the climbing community in AUS, and I'll need some time to warm up after China! (Also I've wanted to go to Australia since I was about 5 years old.) If anyone has recomendaitons of things to do around Melbourne, let me know!
 
@@ -18,5 +18,5 @@ Thank you for taking the time to keep up with me, let me know if you read this!
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg1MjY1MTIyNF19
+eyJoaXN0b3J5IjpbLTE2MjI3MzcwNjgsLTg1MjY1MTIyNF19
 -->
