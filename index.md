@@ -20,19 +20,19 @@ Thank you for taking the time to keep up with me, let me know if you read this!
 
 
 
-China
+## China
 
-12/9 
+**12/9** 
 On the plane, I've still got about 6 hours left to go. I've already taken a nap, watched Crazy Rich Asians, and tried to walk around the plane without running into every person along the way. It still hasn't quite hit me that when I land, I'll be in China, and I won't go back to Seattle until March. I'm going to miss so many people, events and memories while I'm gone, but I know that I'm going to have an incredible time and learn so many things thdidn't even know I needed to learn.
 
-10
+**10**
 
 We had breakfast in the hotel, and I'm still not comfortable with the huge meals, but I think I'll get used to it soon enough! I had a taro bun, sesame balls, a steamed bun, shredded carrot, corn soup and what seemed like zuchinni in gravy. I don't understand how the Chinese eat so much and how most of them seem to stay fairly healthy. We haven't been snacking but we've had three big meals a day. I think it has something to do with how cold it is, or at least I'll blame it on that for now. 
 
 We went to a classroom on campus and got to meet out Tsinghua classmates, most of whom are actually exchange students who are just spending a few months in Beijing. In my small group one boy is from Japan and one is from Korea, so I think we'll have a lot to talk about in our final presentation (the topic is tbd but we might dive into the demand and solutions for disposable plastic products). I can't imagine studying abroad at such a prestigious university, I would feel inadequate and completely out of my comfort zone. One of the the UW students was trying to explain how hard it is to get into a good university, and it made me incredibly thankful that I did not grow up here. Students all take one test and get ranked, then they can choose which school to go to based on that rank. At dinner, one of the Tsinghua students was explaining that there are different grading standards for the different exchange countries, which might make it a bit easier to do well in courses, but not by that much.  Is there a way to standardize education in order to accommodate for language barriers or influences? I feel like there is no way to completely bridge the gap between entirely different systems, but I do not know. 
 
 
-11
+**11**
 
 We started our day today with a history lecture by Lu Yang, an esteemed professor from Peking University. We got a brief overview of the history of Chang'an, and the different emperors that came before Beijing as we know it today. I think the most interesting thing that we learned was the ways in which written language was used for propaganda, and how important it was in upholding the beliefs and power of the emperors. // We went to the school cafeteria for lunch, which was incredubly packed and full of all different kinds of food. I decided to take it easy and not order food on my own with no Chinese, and instead just went to the counter where you pick up plates of whatever you want. There options spanned the length of an entire wall of the open room, but I got rice, bok choy, broccoli and tofu, which was all good but not as hot as I would've liked. At our table we were talking about how efficient the system seems to be and how something of that nature would most likely not work at UW. It seems like that they have a lot more options than us in terms of buying fresh food at a market or eating a plethora of things in the cafeteria, so I wonder what the other universities in the area have in way of dining halls.  
 
@@ -42,6 +42,6 @@ One thing that seems to be very easy to appreciate is the food, and we continued
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI1NDY2MDg0MCwtMTgyMTUxNjk3LC04Mz
-U5MTczMzQsNzE4NTY2Nzc1XX0=
+eyJoaXN0b3J5IjpbMjQzMDk5NDcwLC0xODIxNTE2OTcsLTgzNT
+kxNzMzNCw3MTg1NjY3NzVdfQ==
 -->
