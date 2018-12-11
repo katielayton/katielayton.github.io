@@ -27,5 +27,6 @@ On the plane, I've still got about 6 hours left to go. I've already taken a nap,
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgzNTkxNzMzNCw3MTg1NjY3NzVdfQ==
+eyJoaXN0b3J5IjpbLTE4MjE1MTY5NywtODM1OTE3MzM0LDcxOD
+U2Njc3NV19
 -->
