@@ -1,4 +1,4 @@
-#Welcome to my blog!
+# Welcome to my blog!
 
 I will be gone from home for quite some time, and I would love to be able to call each and every one of you on a regular schedule, but with the time difference and life, I don't think it will be possible. So... a blog!
 
@@ -20,6 +20,7 @@ Thank you for taking the time to keep up with me, let me know if you read this!
  
 
 **December**
+
 **12**
 "What countries would you live in if you had the opportunity to live abroad?" How can I say no to any opportunity? I feel like I can't pass anything up. Every path seems like a chance to learn and grow, and what an exciting place to be. Who knows what the next few years will hold? I can't limit myself to just Seattle or Washington or even the US. I feel the travel bug starting to take root, I want to experince it all. I am grateful that my trip continues after these 10 days, but I'm also grateful that I have "home" to go back to. Home is starting to take on new meaning for me, it's no longer my house in Bellingham, , and it's not limited to my house in Seattle. Home is where my people are, with those who know me and can remind me of who I am. 
 
