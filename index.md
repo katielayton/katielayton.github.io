@@ -16,10 +16,17 @@ Thank you for taking the time to keep up with me, let me know if you read this!
 
 
 
----------------------------------------------------------------------------------------------------------------------------
+
  
 
+
+## China
+
 **December**
+
+**13** 
+Today might have been my favorite day of the trip so far, depsite, or maybe partly because of, the fact that I took my last final this morning. I think it went as well as it could have gone, and now that Fall quarter is over, I feel like I can truly focus on being in Beijing. A few of us went out after dinner tonight, venturing outside of the gates of the university without the entire group for the first time. There are so many moving lights in the city, it's a bit different than the quiet calm of the lights on the construction cranes back home. 
+
 
 **12**
 "What countries would you live in if you had the opportunity to live abroad?" How can I say no to any opportunity? I feel like I can't pass anything up. Every path seems like a chance to learn and grow, and what an exciting place to be. Who knows what the next few years will hold? I can't limit myself to just Seattle or Washington or even the US. I feel the travel bug starting to take root, I want to experince it all. I am grateful that my trip continues after these 10 days, but I'm also grateful that I have "home" to go back to. Home is starting to take on new meaning for me, it's no longer my house in Bellingham, , and it's not limited to my house in Seattle. Home is where my people are, with those who know me and can remind me of who I am. 
@@ -47,7 +54,7 @@ We went to a classroom on campus and got to meet out Tsinghua classmates, most o
 On the plane, I've still got about 6 hours left to go. I've already taken a nap, watched Crazy Rich Asians, and tried to walk around the plane without running into every person along the way. It still hasn't quite hit me that when I land, I'll be in China and I won't go back to Seattle until March. I'm going to miss so many people, events and memories while I'm gone, but I know that I'm going to have an incredible time and learn so many things that I didn't even know I needed to learn.
 
 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzYyMjc0NTMyLC0xODIxNTE2OTcsLTgzNT
-kxNzMzNCw3MTg1NjY3NzVdfQ==
+eyJoaXN0b3J5IjpbNjI2ODgxNTc4XX0=
 -->
