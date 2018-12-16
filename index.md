@@ -23,6 +23,11 @@ Thank you for taking the time to keep up with me, let me know if you read this!
 ## China
 
 **December**
+**15**
+It took fourteen years to build the Forbidden City. 14! It is absolutely breathtaking and the amount of work that went into it must have been tremendous. Our tour guide said that there were about one million workers who helped build it, and even that seems like a small number for the monumental effort. Everywhere you look there is incredibly detailed metal work, carving and painting, not to mention the fact that the entire thing was built using only wood joints and no nails or other reinforcements. We were only able to walk through a small portion of the city, but we could've easily spent the entire day, or week, there. I hadn't looked at any pictures of the city before I went in, which made it better in my opinion. Everything I was seeing was new, and I think it is safe to say that it was one of the most incredible experiences of my life. During lunch we were reflecting on what kind of life the emperor would have had in the palace, and one of my professors brought up that she feels like she lives better than any king or emperor. She lives on a farm on Whidbey Island and feels as though she has so much abundance and comfort that she really does live better than royalty. I think that her gratitude for life is due in large part to her mindset, and if more people appreciate the things they have that we could all feel more gratitude towards our lives and experiences. I'm trying to not take so many things for granted, but it's hard to notice the things that bring you joy until they are no longer able to. Tonight I wound up washing all of my clothes in our sink, which was cathartic in its own way but really made me appreciate washing clothes in a machine. Traveling amplifies the absence of simple pleasures like cold, un-bottled drinking water or washing your hands with warm water and soap, but I feel like it also amplifies your gratitude for the things you do have. 
+
+**14**
+I am 20 years old! It is the first birthday I have ever spent outside of the US, and I hope it is not the last. It wasn't a traditional birthday (who gets to see a solar power site and an e-waste facility on their birthday?!) but I still got a cake and even a birthday crown. Despite having just met most of the people on my trip, they made me feel so loved and special. We went out for drinks after a fantastic vegetarian dinner, and I got to experience my first nightclub. I can't wait to see what else is in store for the trip and the rest of the year, I have a feeling it's going to be a good one. 
 
 **13** 
 Today might have been my favorite day of the trip so far, depsite, or maybe partly because of, the fact that I took my last final this morning. I think it went as well as it could have gone, and now that Fall quarter is over, I feel like I can truly focus on being in Beijing. A few of us went out after dinner tonight, venturing outside of the gates of the university without the entire group for the first time. There are so many moving lights in the city, it's a bit different than the quiet calm of the lights on the construction cranes back home. 
@@ -56,5 +61,5 @@ On the plane, I've still got about 6 hours left to go. I've already taken a nap,
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjI2ODgxNTc4XX0=
+eyJoaXN0b3J5IjpbLTE4ODQ0ODcyMzAsNjI2ODgxNTc4XX0=
 -->
