@@ -17,7 +17,7 @@ Thank you for taking the time to keep up with me, let me know if you read this!
 
 
 
- ## Chiang Mai, Thailand
+## Chiang Mai, Thailand
 **January** 
 **7** 
 Traveling is getting easier. I'm still bad at figuring out which cardinal direction I'm facing, but I'm getting better at finding landmarks (or in Chiang Mai, the giant mountains in the west). I still wander the isles of grocery stores for too long trying to find the best snacks and deals on toilet paper, but I'm getting better at being decisive when ordering food. I still miss Seattle, but I'm finding comfort in new routines. 
