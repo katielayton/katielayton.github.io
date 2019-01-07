@@ -17,7 +17,21 @@ Thank you for taking the time to keep up with me, let me know if you read this!
 
 
 
- 
+ ## Chiang Mai, Thailand
+**January** 
+**7** 
+Traveling is getting easier. I'm still bad at figuring out which cardinal direction I'm facing, but I'm getting better at finding landmarks (or in Chiang Mai, the giant mountains in the west). I still wander the isles of grocery stores for too long trying to find the best snacks and deals on toilet paper, but I'm getting better at being decisive when ordering food. I still miss Seattle, but I'm finding comfort in new routines. 
+Especially compared to Beijing, I already feel more comfortable here. Even though I think I lost all of the Thai I learned last quarter, it is encouraging that I recognize some of the numbers and letters. There is a lot more English on the shop signs and almost everyone I've met speaks some English, so it will be much easier to navigate.
+I tried to talk to everyone in my program today, at least for a few mintues, and while there are a few people that I have gravitated towards already, I'm going to try my best to continue to reach out to everyone. Each person is bringing an entirely different background, set of interests and worries to the progam, and I want to be able to engage with everyone. So far, people have been engaged and inclusive, even with being jetlagged, so once people get settled I think we'll do just fine.
+
+
+## Melbourne, Australia
+**6**
+Ok, so the online journal doesn't work as well when you don't have consitent WiFi and you don't understand computers. I am going to try my best to get this working again while I'm in Thailand, I should have plenty of time to figure it out. 
+I am flying out of Melbourne today, and I can't believe that two weeks has gone by so quickly. I became so comfortable with the city, the trams, and the people in such a short amount of time, and I will be back again I'm sure. My trip would not have been the same had I not been able to stay with two of Fiona's friends she met last year while traveling, and I am incredibly grateful for their hospitality and kindness. There have been so many kind people who have gone out of their way to make me feel comfortable during this trip, and I hope that I will be able to pay it forward while I am in Thailand and when I go back to the States. Not everyone is out there to get you, there are people who will offer you to go to the beach with them or eat a meal at their table and they truly do not expect anything in return. 
+In the spirit of the new year and giving thanks, I want to do my best to live with more enthusiasm this year. I read [this article](https://www.outsideonline.com/2378571/make-2019-year-maximum-enthusiasm) from Outside online and it hit on something that I've been thinking about a lot in the past few weeks.  I have been experiencing so many new things, I want to make sure I stop and notice when I'm doing something that is meaningful/exciting/different. I went to the beach yesterday. The beach! In Janurary! In Australia! If that's not exciting I don't know what is, and even still, there were so many people who I saw that were arguing with a loved one, rushing to eat a quick meal, or just totally checked out on their phones. If I'm able to notice those special moments, I think it will help me put the more negative moments into a better perspective. Sure, my house in Seattle flooded and I will not be able to go home to the house that I had started to feel comfortable in, but no one got hurt, and the loss seems so much more managable when I recognize all the positive change that is coming to me. 
+
+
 
 
 ## China
